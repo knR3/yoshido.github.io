@@ -1,0 +1,1 @@
+# yoshido.github.io
